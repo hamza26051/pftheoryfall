@@ -15,7 +15,9 @@ Q3)
 
 Q4)
 
-![image](https://github.com/hamza26051/pftheoryfall/assets/142868640/ae215d9e-e2e3-456f-b55c-af75b7240b9c)
+![image](https://github.com/hamza26051/pftheoryfall/assets/142868640/2a66755f-32da-4138-9146-1e87686a350e)
+
+
 
 
 Q5)
