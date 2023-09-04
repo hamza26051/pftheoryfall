@@ -26,4 +26,33 @@ Q5)
 ![image](https://github.com/hamza26051/pftheoryfall/assets/142868640/346de746-a271-437a-a935-608c57fad031)
 
 
+Q6) 
+
+![image](https://github.com/hamza26051/pftheoryfall/assets/142868640/52752e8c-6283-4414-9f30-b0ebffed6e71)
+
+
+
+Q7)
+
+![image](https://github.com/hamza26051/pftheoryfall/assets/142868640/1a01493d-97fe-48dd-a969-f1363ffa8efa)
+![image](https://github.com/hamza26051/pftheoryfall/assets/142868640/7dabc36f-62fb-425f-b65f-b23157f5b905)
+
+Q8)
+
+
+![image](https://github.com/hamza26051/pftheoryfall/assets/142868640/728471f4-0656-477c-a6f5-fbccadbd1dbe)
+
+
+Q9)
+
+![image](https://github.com/hamza26051/pftheoryfall/assets/142868640/c9c2838d-a95c-4f14-b656-3debacb4dd82)
+
+
+Q10)
+
+
+![image](https://github.com/hamza26051/pftheoryfall/assets/142868640/2e6e6404-7b1e-4e36-ac50-5cdc5d702337)
+
+
+
 
